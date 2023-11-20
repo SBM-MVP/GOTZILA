@@ -1,2 +1,2 @@
 # GOTZILA
-niky_luktookkon@hotmail.com
+ID/master:niky_luktookkon@hotmail.com
